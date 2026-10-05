@@ -105,6 +105,14 @@ App-blocking and additional distraction-control features are being developed to 
 
 ---
 
+
+MISTAKE BOOK 📖 📖 
+
+Log your mistakes,keep track of it 
+ressolve mistakes and learn from it 
+the best method for competetive exams
+
+
 📱 Widgets
 
 Keep your preparation visible without opening the app.
